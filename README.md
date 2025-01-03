@@ -6,3 +6,7 @@ Below is just useless infomation, just me trying to fill up the README.
 So, WHOAMABOUTTOMAKEANAMEFORMYSELFHERE
 
 ANDDDDDDDDDDDDD RRR
+
+Wheeeeeeeeeeeeeeeeeeeennnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnnn
+
+AAAAAAAAAAAAARRRRRRRRRRRRRRRRRRRRRRRRRGGGGGGGGGGGGGGGGGGGGGGGGGHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
